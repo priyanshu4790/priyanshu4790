@@ -10,7 +10,7 @@ Fascinated by the multiple facets this branch of Science has to offer, I have de
 - 🌱 I’m currently learning Data Strutures
 - 🤔 I’m looking for help with MERN 
 - 💬 Ask me about Web Devlopment and Graphic Desiging 
-- 📫 How to reach me:[Linkedin](https://www.linkedin.com/in/priyanshu-sharma-52167218b)
+- 📫 How to reach me:[Linkedin](https://www.linkedin.com/in/priyanshu-sharma-52167218b),[Youtube](https://www.youtube.com/channel/UC-itGzGNY7Ciajja0H-N87w),[Instagram]   (https://www.instagram.com/sharmaji_ka_beta4790) 
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I like Writtting Rap,Singing and Music Production  
 
